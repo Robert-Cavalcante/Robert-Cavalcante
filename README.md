@@ -1,0 +1,6 @@
+- 👋 Oi, Sou o @Robert-Cavalcante
+- 👀 Estou interessado em Data Science
+- 🌱 Estou aprendendo atualmente sobre o GIT e Python
+- 💞️ Quero poder colaborar um dia com meu conhecimento em uma grande empresa, quem sabe não a minha própria...
+- 📫 Para me contactar pode usar o e-mail robert.bmth01@gmail.com
+- 😄 Ele/Dele
